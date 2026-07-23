@@ -1,1 +1,0 @@
-sledy za soboy 
